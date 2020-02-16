@@ -5,6 +5,8 @@ Welcome to my creative writing portfolio! I write code by day and poetry by nigh
 
 Monthly mental-health and social justice centric column focused on advice on issues prevalent among college students
 
+* ['Colors of KU' helps advance equity and explore liberation](http://www.kansan.com/opinion/colors-of-ku-helps-advance-equity-and-explore-liberation/article_9aaafbb2-4dc8-11ea-b14b-477b70cd204c.html) February 2020
+* [Break out of your box — take a walk outside to escape winter blues](http://www.kansan.com/opinion/break-out-of-your-box-take-a-walk-outside-to/article_af5807e4-4391-11ea-826b-8fd0b302b923.html) January 2020
 * [All hands in: Bridging the gender gap in STEM fields](http://www.kansan.com/opinion/all-hands-in-bridging-the-gender-gap-in-stem-fields/article_3528c424-f371-11e9-999f-0b761cdcaa86.html) October 2019
 * ['No one ever gets a red carpet to success': How to learn from rejection](http://www.kansan.com/opinion/no-one-ever-gets-a-red-carpet-to-success-how/article_8e6c3140-de29-11e9-9776-7f217f098cf6.html) September 2019
 * [How to survive your first semester of college when the optimism fades, reality hits](http://www.kansan.com/opinion/how-to-survive-your-first-semester-of-college-when-the/article_705e082c-c1e6-11e9-bc0d-f3cc85db54d3.html) August 2019
